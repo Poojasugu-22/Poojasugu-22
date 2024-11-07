@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Poojasugu-22
+- 👀 I’m interested in java.
+- 🌱 I’m currently learning java.
+- 💞️ I’m looking to collaborate on social works.
+- 📫 How to reach me : poojasuguna22@gmail.com.
